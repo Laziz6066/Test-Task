@@ -48,3 +48,8 @@
 
 Лазиз Саидов
 
+![img_1.png](img_1.png)
+
+## hh.ru
+
+https://hh.ru/resume/6d593be3ff0c452f460039ed1f787058754c61
